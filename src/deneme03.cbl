@@ -1,0 +1,1 @@
+gergedanlar ayakta mi uyur.
